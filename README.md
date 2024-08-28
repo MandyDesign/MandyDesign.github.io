@@ -1,5 +1,5 @@
 "><b><span style="font-size: 24px;"><font color="#ef44a1">◦•●◉✿ 𝙈𝙖𝙣𝙙𝙮 (𝟲𝟭𝟭𝟳𝟯) 𝙞𝙂𝙞𝙛 ✿◉●•◦﻿</font></span></b></p>
-<table cellpadding="0" cellspacing="0" width="100%">
+
  <tbody> 
 <br><br><br><br>
  <td><div style="text-align: center; width: 100px; height: 120px; background-color:#ef44a1; border: 3px solid rgb(255, 255, 255);"><font color="#ffffff"><b>After-01</b></font> <img src="https://i.imgur.com/dn2VOIB.gif" style="font-size: 1rem;"> </div></td>
