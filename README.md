@@ -1,4 +1,4 @@
-</p><p style="text-align: center; "><b><span style="font-size: 24px;"><font color="#ef44a1">◦•●◉✿ 𝙈𝙖𝙣𝙙𝙮 (𝟲𝟭𝟭𝟳𝟯) 𝙞𝙂𝙞𝙛 ✿◉●•◦﻿</font></span></b></p>
+"><b><span style="font-size: 24px;"><font color="#ef44a1">◦•●◉✿ 𝙈𝙖𝙣𝙙𝙮 (𝟲𝟭𝟭𝟳𝟯) 𝙞𝙂𝙞𝙛 ✿◉●•◦﻿</font></span></b></p>
 <table cellpadding="0" cellspacing="0" width="100%">
  <tbody> 
 <br><br><br><br>
